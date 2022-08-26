@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @b3ub3un
+- 👀 I’m interested in many things
+- 🌱 I’m currently learning some things
+- 💞️ I’m looking to collaborate on interesting things
+- 📫 How to reach me is quite a thing
